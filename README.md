@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **on Addis Ababa University**
 
-- 📫 How to reach me **a46581234@gmail.com**
+- 📫 How to reach me **abrham.wendmeneh.a@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
